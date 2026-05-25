@@ -1,1 +1,0 @@
-# paint-github-dd99a
